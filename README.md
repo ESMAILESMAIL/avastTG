@@ -11,3 +11,4 @@ avast bot is open source!
 
 کانال:
 @avast_Team
+''Hacked By Hacker Tanha''
